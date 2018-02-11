@@ -1,1 +1,1 @@
-# [AnthonyCoompson.github.io](https://www.AnthonyCoompson.github.io)
+# [AnthonyCoompson.github.io](https://anthonycoompson.github.io)
